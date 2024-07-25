@@ -27,3 +27,7 @@ MY SECOND DAY WAS ALMOST GOODAS FIRST DAY BUT THIS TIME IT WAS LIKE IT OUR OWN P
 
 It was good and new day today we classes as studies we go to workshop hall for UHV classes  it was rainy day today and in UHV universal Human value I understood  right understanding and relations questions were asked we gave intro and after uhv class there was peer interaction in which we did canva I have already being using canva so it was very easy for me after class there was HS rai sir class we were taught to make account on github  make website it was for beginners 
 
+
+
+*Saturday and Sunday was holiday*
+
