@@ -2,6 +2,8 @@
 
 My experience at GNDEC , LUDHIANA
 
+#Induction programe 
+
 ## DAY 1 
 
 *Date* 9 July 2024
@@ -30,4 +32,12 @@ It was good and new day today we classes as studies we go to workshop hall for U
 
 
 *Saturday and Sunday was holiday*
+
+## Day4
+
+*Date* 14 july 2024
+
+**Monday**
+
+It is new week today I am excited to  see what will happen and 
 
