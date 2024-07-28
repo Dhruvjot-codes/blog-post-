@@ -89,7 +89,7 @@ on Saturday  I visited  for all documents application  and on Sunday we have ncc
 *Date* 21 july 2024
 
 **Monday**
-it is 2nd weekp  presentation  workshop  of pandoc on linux we enjoyed  learning  at understood got new experiences 
+it is 2nd week today of college  and today speaker was S.B singh he my great inspirator he give me advise in my school too and it was my 3rd interaction with him today I met sir and told about myself and last interaction next was pushpinder sir presentation  workshop  of pandoc on linux we enjoyed  learning  at understood got new experiences 
 
 
 
@@ -98,6 +98,8 @@ it is 2nd weekp  presentation  workshop  of pandoc on linux we enjoyed  learning
 *Date* 22 july 2024
 
 **Tuesday**
+
+
 
 
 
