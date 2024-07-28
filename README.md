@@ -67,6 +67,7 @@ today Is 2nd  UHV class we studied  chapter 2  and submitted  assignment 1  I wa
 *Date* 18 july 2024
 
 **Thursday**
+
  today again  we have auditorium  class but it was in balcony  for IT then we visited UHV class where we have to submit assignment  2 but I request to give it in next class so we were taught chapter 3 and 4 then after break we went to auditorium  again and again Hs rai sir class at G2 we learn linux commands sir explained  there was culture  oriented programs  were I registered for poster making 
 
 
@@ -76,7 +77,8 @@ today Is 2nd  UHV class we studied  chapter 2  and submitted  assignment 1  I wa
 *Date* 19 july 2024
 
 **Friday**
-awaresome day today with clouds all over  we visited again Auditorium  today and after break we visted for English activities where we did competition bet6 class IT a and b then after activity senior 4 year  student  came which make us laugh  he did small talks and told experience   then we have HS rai sir class  and workshops were assigned so discussion  started over there  and sir explain to open pandoc 
+
+awaresome day today with clouds all over  we visited again Auditorium  today and after break we visted for English activities where we did competition bet6 class IT a and b then after activity senior 4 year  student  came which make us laugh  he did small talks and told experience   then we have HS rai sir class  and workshops were assigned so discussion  started over there  and sir explain to open pandoc  it was performed by ishmeet
 
 
 *Saturday and Sunday  holiday*
@@ -86,18 +88,59 @@ on Saturday  I visited  for all documents application  and on Sunday we have ncc
 
 ## Day9
 
-*Date* 21 july 2024
+*Date* 22 july 2024
 
 **Monday**
-it is 2nd week today of college  and today speaker was S.B singh he my great inspirator he give me advise in my school too and it was my 3rd interaction with him today I met sir and told about myself and last interaction next was pushpinder sir presentation  workshop  of pandoc on linux we enjoyed  learning  at understood got new experiences 
+
+it is 2nd week today of college  and today speaker was S.B singh he my great inspirator he give me advise in my school too and it was my 3rd interaction with him today I met sir and told about myself and last interaction next was pushpinder sir after that in hs rai sir class I have  presentation of    workshop  of javascript In 15 m8nutes all over over it was basics  we got new experiences  I made my own website and blog posts and certification upload profile  
 
 
 
 ## Day10
 
-*Date* 22 july 2024
+*Date* 23 july 2024
 
 **Tuesday**
+
+let's explore today I was very excited but today was interaction  class of excel and AI I was getting bored I was already  studied about these and then we have English  activity class where we did interaction between new teacher and after break I visted auditorium  as I was PMS scholarship student  and I need help for that sir cleared our doubts and interacted us friendly  then class in G2
+
+
+## Day11
+
+*Date* 24 july 2024
+
+**Wednesday**
+I was having competition of fine arts poster making then day
+today was boring day speakers were giving  motivated  and after break we have causmic CLUB but it was bored to and then we havehs rai class at physics lab workshop for linux
+some topics were left then it was postponed next day
+
+
+## Day12
+
+*Date* 25 july 2024
+
+**Thursday**
+
+Today there was new class of chemistry we just start with basics and know about chapters overall then we have UHV class I submitted  my assignment 2 and I hot lecture  which I understood to interact others after break we have maths exam i solved but students were cheating I was not feeling good after that we have HS rai sir class at G2 lonux complete and open cad workshop 
+
+
+## Day13
+
+*Date* 26 july 2024
+
+**Friday**
+
+today was last day of induction programme and competition of tiny hackathon in civil lab then visited at auditorium there was singinging and we enjoyed listening after that I sit in library  and passed my some time there 
+
+
+*Saturday  Sunday  Monday  holiday on behalf of birth of shri Guru harkrishan ji*
+
+
+
+
+
+
+
 
 
 
